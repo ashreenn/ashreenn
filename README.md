@@ -1,4 +1,4 @@
-### Hi there :wave:, I'm Iqman Singh
+### Hi there :wave:, I'm Ashreen Kaur
 
 ---
 *B.E. Computer Engineering* Student at *Vellore Institute of Technology, Bhopal* <br>
